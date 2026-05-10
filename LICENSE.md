@@ -1,4 +1,4 @@
-
+Get the ultimate Final Cut Pro for macOS extension with rare Final Cut Pro for macOS Extension | text-animation + proxy-editing. Featuring text-animation and proxy-editing, it's
 
 
 
